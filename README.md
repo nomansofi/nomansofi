@@ -24,7 +24,8 @@
 ---
 
 ## 💻 About Me
-🚀 **Student at:** Government Degree College Anantnag  
+🚀 **Student at:** UNIVERSITY OF KASHMIR  
+**Pursuing** INTEGRATED DATA SCIENCE AND AI
 ⚽ **Footballer:** player @Tral fc , speedy strikers
 **Organizer of Scrapyard** |
 🖥️ **Tech Enthusiast:** Learning Programming, Web Development & Hardware Projects    
